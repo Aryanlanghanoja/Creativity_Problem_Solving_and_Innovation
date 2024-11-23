@@ -1,1 +1,1 @@
-# Creativity_Problem_Solving_and_Innovation
+# Creativity Problem Solving and Innovation
